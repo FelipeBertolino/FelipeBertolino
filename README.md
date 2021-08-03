@@ -1,4 +1,4 @@
-### Opa eu sou Felipe, mais conhecido como Bertolino ✌
+### Opa, olá eu sou Felipe, mais conhecido como Bertolino ✌
 
 
 <div>
